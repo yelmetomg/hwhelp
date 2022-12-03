@@ -1,6 +1,7 @@
 # hwhelp
 all hwhelp links
-https://hwhelp.xyz/
+
+https://hwhelp.cc/
 
 https://hwstuff.xyz/
 
