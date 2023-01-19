@@ -18,3 +18,7 @@ https://homeworkhelpback.cf/
 https://homework.realwilly.tech/
 
 https://proxy.legitzenith.com/
+
+https://glaresmp.tk/
+
+https://homework.hostingly.me/
